@@ -168,3 +168,11 @@ Ok, mas eu quero continuar trabalhando com orientação a objetos e acho que pro
 ***
 
 ### Muito obrigado!
+
+lucas.reis@b2wdigital.com
+
+@iamlucasmreis
+
+http://lucasmreis.github.io/blog/
+
+https://github.com/lucasmreis
